@@ -16,5 +16,7 @@ pinguinzindantartica@gmail.gov.antartica
 
 @CreitoPinguin
 
-![](https://giffiles.alphacoders.com/134/13492.gif) ![](https://gifdb.com/images/high/animated-moving-sharingan-t4o0nis1oyfvrxdd.gif)  ![](https://img.wattpad.com/story_parts/1175315529/images/16c787881ab9be07424402915399.gif)
+![](https://giffiles.alphacoders.com/134/13492.gif)
+![](https://gifdb.com/images/high/animated-moving-sharingan-t4o0nis1oyfvrxdd.gif) 
+![](https://img.wattpad.com/story_parts/1175315529/images/16c787881ab9be07424402915399.gif)
 ![](https://media.tenor.com/PdMLj5A9SdwAAAAC/anime-naruto.gif)
